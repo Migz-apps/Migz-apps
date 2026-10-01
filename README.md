@@ -1,3 +1,3 @@
 ## Waguan 👋 I'm Mazimpaka Miguel
 
-## Checkout my work
+Checkout my work
